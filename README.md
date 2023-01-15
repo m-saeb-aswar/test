@@ -6,10 +6,4 @@ sfasd
 qwe
 
 
-qweqwe
-
-qweqwe
-
-
-
 wqe
