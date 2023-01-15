@@ -4,8 +4,3 @@ as
 afgw
 
 qewq
-
-fq
-
-
-wqe
