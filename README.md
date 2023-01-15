@@ -3,6 +3,5 @@ as
 
 afgwfq
 
-afsaf
 
 wqe
